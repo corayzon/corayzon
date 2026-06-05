@@ -11,7 +11,7 @@
 <p align=center> **ᴿᵃʸ**  
 <p align=center> **she / her ✦ INTP**
 
-<p align=center> ──────────────
+<p align=center> <img width="226" height="19" alt="1000026735" src="https://i.ibb.co/JwCHPmnf/IMG-0862.gif" />
 
 <p align=center> `00 / 69`
 
