@@ -13,5 +13,10 @@
 
 <p align=center> <img width="226" height="19" alt="1000026735" src="https://i.ibb.co/JwCHPmnf/IMG-0862.gif" />
 
+<div align="center">
+
+[![Spotify](https://spotify-github-profile.kittinanx.com/api/view?uid=https://open.spotify.com/user/31467d6lyvo2sfqjqzy6tw3j2d4q?si=e282b12eeaa8482c&cover_image=true&theme=novatorem)](https://spotify-github-profile.kittinanx.com/api/view?uid=https://open.spotify.com/user/31467d6lyvo2sfqjqzy6tw3j2d4q?si=e282b12eeaa8482c)
+
+</div>
 
 <p align=center> </div>
