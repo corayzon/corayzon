@@ -1,6 +1,6 @@
 
 
- <p align=center> <img width="353" height="325" alt="1000026735" src="[https://github.com/user-attachments/assets/f50d6132-7c63-40c3-87e1-7ed793bf4f86](https://i.ibb.co/KpDxLChD/pobrane-1.png)" />
+ <p align=center> <img width="353" height="325" alt="1000026735" src="https://i.ibb.co/KpDxLChD/pobrane-1.png" />
 
 ### 𝓡𝓪𝔂.
 
