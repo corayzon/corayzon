@@ -6,7 +6,7 @@
 
 <p align=center> > "...I reckon I'll take a kip after this. I've earned it."
 
-<p align=center> ──────────────
+<p align=center> <img width="226" height="19" alt="1000026735" src="https://i.ibb.co/0ppwHR7T/IMG-0396.gif" />
 
 <p align=center> **ᴿᵃʸ**  
 <p align=center> **she / her ✦ INTP**
